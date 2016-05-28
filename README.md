@@ -1,2 +1,2 @@
-# jx9716.github.io
-they forced me to do this
+# site-diversity-q2
+HYPE PogChamp
